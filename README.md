@@ -1,2 +1,2 @@
 # Zeesbabe
-https://urbantechgirl.github.io/zeesbabe/
+https://urbantechgirl.github.io/Zeesbabe/
